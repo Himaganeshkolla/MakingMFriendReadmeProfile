@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑I am Hima Ganesh <br>👨‍🎓Student at Sheshadri Rao Gudlavalleru Engineering College <br>📜Currently pursuing B.Tech in Information Technology <br>🌱 I’m currently learning modern technologies and skills
+🧑I am a <br>👨‍🎓Student at Sheshadri Rao Gudlavalleru Engineering College <br>📜Currently pursuing B.Tech in Information Technology <br>🌱 I’m currently learning modern technologies and skills
 
 
 ## 🌐 Socials:
